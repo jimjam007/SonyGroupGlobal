@@ -1,1 +1,1 @@
-# SonySports
+# SonyGlobal
